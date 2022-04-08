@@ -1,1 +1,1 @@
-# project-04-proposal.md
+  For this project, I plan to let the element of surprise play a big role in how this final portfolio comes out. I feel as if keeping the viewer on their toes for what's to come from me makes it that much more interesting. I plan to set up my portfolio similar to a YouTube channel, where you see all the multiple projects on the same page ) like you'd see all a music artist or content creator's videos on their page/channel)
